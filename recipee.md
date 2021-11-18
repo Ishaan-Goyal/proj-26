@@ -1,0 +1,1 @@
+First pour 2 spoons of water in a large glass and add some coffee. Then stirr the mixture by hand till it gets really frothy and brownish and then keep adding some water. After the mixture is so thick that it cannot be stirred any more add milk till it fills the glass and stirr it . Then add your ice cubes and you would have your dalgona coffee ready.
